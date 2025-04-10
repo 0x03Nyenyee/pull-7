@@ -1,0 +1,1 @@
+direct ke tempat baru
